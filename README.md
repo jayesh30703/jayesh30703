@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jayesh30703
-- 👀 I’m interested in Hacking 
-- 🌱 I’m currently in Comp. Engineering 
+- 👀 I’m interested in Hacking  
+- 🌱 Perceiving degree in Comp. Engineering
 - 💞️ I’m looking for a guide...
 - 📫 How to reach me: jayugudaghe.3073@gmail.com
 
